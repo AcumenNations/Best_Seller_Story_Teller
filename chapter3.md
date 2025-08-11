@@ -1,4 +1,6 @@
-Chapter 3: The Surface Accord For three days after the confrontation at the
+Chapter 3: The Surface Accord
+
+For three days after the confrontation at the
 Bridge, Atlantis vibrated with preparation. Choir members refined protective
 harmonics, Resonant children practiced resonance drills, and the city's sentient
 architecture thrummed with newfound purpose. Lysandra spent most of her time in
@@ -162,4 +164,4 @@ Musicians, scientists, even storytellers. Anyone who understands the power of
 narrative. We need hearts as much as minds." Seraphel nodded approvingly.
 "Harmony is not achieved by force but by shared purpose. The Accord is the first
 chord of a new symphony. Let us ensure it grows." They spent the evening
-drafting letters encoded in harmonics that only those attuned to the harp
+drafting letters encoded in harmonics that only those attuned to the harp could decipher, summoning allies across the globe to the cause.

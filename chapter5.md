@@ -1,4 +1,6 @@
-Chapter 5: The Final Harmony The weeks that followed were a study in contrast.
+Chapter 5: The Final Harmony
+
+The weeks that followed were a study in contrast.
 On the surface, the Harmonic Alliance blossomed into a movement that celebrated
 unity through music, science, and story. Atlantean technology discreetly
 enhanced disaster response and environmental restoration. Nations once at odds
@@ -161,4 +163,4 @@ Schools taught not only history and science but also the art of listening—trul
 listening—to one another. Lysandra often stood at the edge of these festivals,
 the Memory Harp at her side, watching the next generation weave their own
 chords. The Bridge no longer felt like a battleground but a living organism, its
-crystal spine thrumming with
+crystal spine thrumming with a promise that the song of unity would never fade.

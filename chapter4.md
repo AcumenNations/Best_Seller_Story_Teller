@@ -1,4 +1,6 @@
-Chapter 4: The Discordant Uprising Weeks passed in a blur of travel and
+Chapter 4: The Discordant Uprising
+
+Weeks passed in a blur of travel and
 negotiation as Lysandra carried the encoded letters across continents. Each
 recipient—an opera singer in Rome, a Sufi mystic in Tangier, a data scientist in
 Tel Aviv, a historian in Cairo, a composer in Istanbul—felt the resonance when
@@ -164,4 +166,4 @@ won by force alone, but by remembering why harmony mattered: it was the sound of
 connection, the bridge between heartbeats. With the Alliance galvanized and the
 world beginning to listen, Atlantis stood on the cusp of a new era. The
 Discordant Uprising had been quelled, but the final movement of this epic was
-yet to be sung. Harmony
+yet to be sung. Harmony awaited its last, most perilous crescendo.

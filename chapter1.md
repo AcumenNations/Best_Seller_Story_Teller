@@ -1,4 +1,6 @@
-Chapter 1: The Lost Choir of the Deep The sun had barely cleared the horizon
+Chapter 1: The Lost Choir of the Deep
+
+The sun had barely cleared the horizon
 when the sea began to sing. At first it was a low hum, like the murmur of
 distant turbines, a vibration that rippled across the pale gold water and
 settled deep into the bones of anyone who heard it. Fishermen along the coast of
@@ -152,4 +154,4 @@ did the light in the chamber. The columns of water glowed, the dome reflected
 constellations of bioluminescent plankton, and the dais floated above the floor.
 The symbols on the archway sparked, sending beams of light through the ceiling
 and into the sea. Far above, in the bay off Santorini, the water churned. A
-whirlpool formed, not of destruction but of rising, as
+whirlpool formed, not of destruction but of rising, as if the sea itself were inhaling to reveal the path below.

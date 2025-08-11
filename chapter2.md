@@ -1,4 +1,6 @@
-Chapter 2: The Gears of Memory The awakening of the Bridge sent ripples through
+Chapter 2: The Gears of Memory
+
+The awakening of the Bridge sent ripples through
 the hidden city, stirring mechanisms that had lain dormant for millennia. As
 Lysandra's voice faded and the Choir's harmonic resonance softened to a
 lingering hum, Seraphel guided her from the Choir Hall into the wider expanse of
@@ -157,4 +159,4 @@ allies—both here and on the surface. The Choir cannot face this alone." As the
 sun set above the waves, casting golden light through the Bridge's spiral,
 Lysandra felt the weight of her role settle upon her shoulders. The city pulsed
 with renewed life, but darkness loomed beyond the edge of the light. The gears
-of memory had
+of memory had only begun to turn, and somewhere in the abyss, a discordant note awaited its cue.
